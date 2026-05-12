@@ -1,4 +1,4 @@
-# 
+# rare 1Password for PC | 1Password for Windows Validator | encryption + folders offers the most advanced 1Password for PC | 1Password for Windows validator, with encryption and
 
 
 
